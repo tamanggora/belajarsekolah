@@ -1,0 +1,2 @@
+# belajarsekolah
+untuk sekolah
